@@ -1,4 +1,4 @@
-
+Download new rivals Script for rivals, the best script available, featuring auto-farm and invisibility. This powerful tool ensures you have the upper hand in every match,
 
 
 
